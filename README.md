@@ -1,5 +1,5 @@
 ## About Me
-I'm Aquib jaleel Mooppan M.A, pursuing mechanical engineering at [MESCE](www.mesce.ac.in/) kuttippuram.
+I'm Aquib jaleel Mooppan M.A, pursuing  engineering at [MESCE](www.mesce.ac.in/) kuttippuram.
   
 # Contact Me
    9447411068
